@@ -3,7 +3,7 @@
 ## I'm Developer!
 - 🌱 I’m currently learning everything 🤣 .
 - 👯 I’m looking to establish my startup 💪 .
-- 🥅 2020 Goals: Contribute more to Open Source projects and working hard every day.
+- 🥅 2021 Goals: Contribute more to Open Source projects and working hard every day.
 - ⚡ Fun fact: I love to draw and play Piano .
 
 ### Connect with me:
