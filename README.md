@@ -7,6 +7,7 @@
 - 👯 I’m looking to establish my startup 💪 .
 - 🥅 2021 Goals: Contribute more to Open Source projects and working hard every day.
 - ⚡ Fun fact: I love to draw and play Piano .
+- ⚡ 2024 I'm Senior Software Engineer .
 
 ### Connect with me:
 
